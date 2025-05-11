@@ -3,7 +3,7 @@ GOJO SATORU😄✌️ Whatsapp bot created by MANEXX🇿🇼
 <img align="center" height="auto"
 src="https://files.catbox.moe/vcncpa.webp">
 Made with love By manexx😄✌️
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=G+O+J+O+S+A+T+O+R+U+B+O+T+😄✌️+▇)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=30&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=G+O+J+O+-+S+A+T+O+R+U+-+W+H+A+T+S+A+P+P+-+B+O+T+-+I+N+C+😄✌️+▇)](https://git.io/typing-svg)
 <br>
 
    </p>
